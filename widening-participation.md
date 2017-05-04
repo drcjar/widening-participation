@@ -51,7 +51,7 @@ this talk is available online
 
 ##
 
-- for me this was medicine because I thought it'd be interesting and worthwhile (pro) though a lot of hardwork (con?)
+- for me this was medicine because I thought it'd be interesting and worthwhile (pro) though a lot of hard work (con?)
 - lots of people told me I had made a bad decision
 - the advice (and support) you get depends on your environment
 - whether you can compete with the people from other environments depends on you (the playing field isn't even but you can, and should, play)
