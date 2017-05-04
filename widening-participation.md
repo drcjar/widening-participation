@@ -14,7 +14,7 @@ this talk is available online
 
 ## hello I'm Carl, I'm a doctor and a geek
 
-## I'm an alumni of St Vincents
+## I'm an alumnus of St Vincents
 
 ## I've spent a long time at school(s)
 
@@ -54,7 +54,7 @@ this talk is available online
 - for me this was medicine because I thought it'd be interesting and worthwhile (pro) though a lot of hardwork (con?)
 - lots of people told me I had made a bad decision
 - the advice (and support) you get depends on your environment
-- whether you can compete with the people from other environments depends on you 
+- whether you can compete with the people from other environments depends on you (the playing field isn't even but you can, and should, play)
 
 ## How I think you should decide
 
