@@ -40,7 +40,7 @@ this talk is available online
 
 # Deciding what to do next
 
-## How I (think I) decided
+## How I think I decided
 
 ##
 
