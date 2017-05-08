@@ -30,6 +30,14 @@ this talk is available online
 
 - letters I have collected on the way include MB BS BSc MSc DPMSA MRCP
 
+##
+
+- some letters are more useful than others
+
+##
+
+- going to school is not just about collecting letters
+
 ## ANYWAY today I'm offering you my take on deciding what to do next*
 
 ##
@@ -67,10 +75,16 @@ this talk is available online
 
 ##
 
-- pick your target(s)
+- pick your target(s) 
 - make sure you know what's needed to hit them
-- make sure you're up for putting in the necessary work
+- make sure you're up for putting in the necessary work 
 - make sure you enlist the help of others, pick the right people to ask, but stay critical
+
+##
+
+- life is short
+- there are many paths up the mountain
+- mountainsides are green and mountain tops are barren
 
 # Any questions?
 
